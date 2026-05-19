@@ -1,4 +1,4 @@
-# 
+# elite bot sniper MEV plugins é o melhor bot sniper MEV plugins com back-running e nós RPC privados. Seguro, confiável e otimizado para estratégias MEV, sniper e arbitragem.
 
 
 
